@@ -1,1 +1,1 @@
-# smg73.github.io
+# smg73 github page
